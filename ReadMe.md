@@ -5,4 +5,4 @@
 #### Participants will compete in teams of 4. Each puzzle is designed to test various skills such as logical thinking, pattern recognition, coding, and creative problem-solving. The puzzles will require collaboration and the application of diverse skill sets to crack.
 
 
-## pdf 5 download link => [https://drive.google.com/file/d/1dVvTxQPnRhR8-5knYVwj-tj5m5KlfJVO/view?usp=drive_link]
+## pdf 5 download link => [[https://drive.google.com/file/d/1dVvTxQPnRhR8-5knYVwj-tj5m5KlfJVO/view?usp=drive_link](https://drive.google.com/file/d/1dVvTxQPnRhR8-5knYVwj-tj5m5KlfJVO/view?usp=sharing)]
